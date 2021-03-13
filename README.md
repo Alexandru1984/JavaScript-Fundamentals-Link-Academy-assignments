@@ -1,0 +1,1 @@
+# JavaScript-Fundamentals-Link-Academy-assignments
